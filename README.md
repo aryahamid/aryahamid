@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Java GUI**
 
-- 👨‍💻 All of my projects are available at [https://github.com/aryahamid](https://github.com/aryahamid)
+- 👨‍💻 Some of my projects are available here in my GitHub account
 
 - 📝 I regularly write articles on [https://www.linkedin.com/in/hamid-arya-7b6809262/](https://www.linkedin.com/in/hamid-arya-7b6809262/)
 
