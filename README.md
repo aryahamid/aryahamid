@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://www.linkedin.com/in/hamid-arya-7b6809262/](https://www.linkedin.com/in/hamid-arya-7b6809262/)
 
-- 📫 How to reach me **aryahamid29@gamil.com**
+- 📫 How to reach me : my gmail **aryahamid29@gmail.com** my whatsapp: ** 0792034922**
 
 - ⚡ Fun fact **I am an ESL**
 
